@@ -1,4 +1,4 @@
-
+Download bee swarm simulator Scripts smart for bee swarm simulator, the best script available, featuring one-hit kill and custom skins. This powerful tool ensures you have the
 
 
 
